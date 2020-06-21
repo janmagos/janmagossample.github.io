@@ -1,0 +1,1 @@
+# janmagossample.github.io
